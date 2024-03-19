@@ -5,3 +5,6 @@ Soy programador web full stacks, estoy en la beca generacion digital cursando en
 
 ## Contacto
 Puedes bsucarme en linkenind como "Kurt Angeles Segura" o tambien escribiendome a travez de mis redes sociales que tienen el mismo nombre y apellido.
+
+## Hobbies
+- Dancing: ...
