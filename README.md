@@ -16,3 +16,6 @@ Puedes bsucarme en linkenind como "Kurt Angeles Segura" o tambien escribiendome 
 ## Hobbies
 - Dancing: ...
 
+## Languages
+Sé Inglés, portugues, mandarin y argentino xd
+
